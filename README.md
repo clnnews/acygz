@@ -1,7 +1,7 @@
 # 害羞av
 害羞av山娃随
 
-👉/观/看/入/口👉http://www.baidu.com/link?url=aFQjCpKLyjmMkJDTPPmIM46mcs0b-moe8w2Xe6-iLGqpxJgfWTUHTnAr0yehHs6i&wd
+# <a href="https://github.com/clnnews/qxgge/issues/2">👉👉👉♥♥点此进入♥观看入口👈👉👉</a>
 
 害羞av在这清浅的功夫里，看春今秋来，看莺飞草长，相约在诗意的花圃里，种几朵流年的花开，坐拥一份心中的沉静与安定。
 　　一路颠簸，七点钟的时候，我站在小镇电影院门口。想象着里面曾经的欢娱，应该也有我的吧。不过它行将被拆掉了，许多回忆都将无从找寻。
